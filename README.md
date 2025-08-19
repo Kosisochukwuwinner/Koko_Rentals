@@ -28,5 +28,3 @@ Ready to book your next luxury experience?
 📱 +234 9018439371
 📧 Wkosisochukwu@gmail.com
 💬 WhatsApp: wa.me/2349018439371
-
-This better ?
