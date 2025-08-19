@@ -25,6 +25,9 @@ Founded with the vision of redefining hospitality and lifestyle in Nigeria, we o
 
 Ready to book your next luxury experience?
 📍 Lagos | Abuja, Nigeria
+    
 📱 +234 9018439371
+
 📧 Wkosisochukwu@gmail.com
+
 💬 WhatsApp: wa.me/2349018439371
